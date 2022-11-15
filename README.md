@@ -21,4 +21,4 @@ Novoline Automat mit Spielgeld testen
 
 Wer gerne einmal an einem Novoline Automat spielen will, kann sich kostenlos und unverbindlich in einem Online Casino registrieren. Das geht schnell und ist ganz einfach. Nach der Anmeldung kann der User den Novoline Automat mit Spaßgeld testen und sich überlegen, ob er später auch echtes Geld einsetzen möchte.
 
-* [Sofortnovoline](https://www.sofortnovoline.com)
+* [Sofortnovoline](https://slotversum.com)
